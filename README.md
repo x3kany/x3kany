@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @x3kany
-- 👀 I’m interested in layer zero
+- 👀 I’m interested in LayerZero
 - 🌱 I’m currently learning turkish
 - 💞️ I’m looking to collaborate on testnets
 - 📫 How to reach me x3any@yahoo.com
