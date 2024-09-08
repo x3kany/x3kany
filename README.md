@@ -1,5 +1,5 @@
 - 👋 Hi, I’m anne Anna
-- 👀 I’m still interested in LayerZero
+- 👀 I’m still interested in Layer2 solutions
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on testnets and L2
 - 📫 How to reach me x3any@yahoo.com or kx3any@gmail.com
