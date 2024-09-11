@@ -1,6 +1,6 @@
 - 👋 Hi, I’m anne Anna
 - 👀 I’m still interested in Layer2 solutions
-- 🌱 I’m currently learning kids education
+- 🌱 I’m currently learning kids upbringing and education
 - 💞️ I’m looking to collaborate on telegram miniaps
 - 📫 How to reach me x3any@yahoo.com or kx3any@gmail.com
 
