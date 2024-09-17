@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Anna
-- 👀 I’m still interested in Layer1 and Layer2 solutions
+- 👀 I’m still interested in L1 and L2 solutions
 - 🌱 I’m currently learning how to raise and educate kids good
 - 💞️ I’m looking to collaborate on telegram miniaps
 - 📫 How to reach me x3any@yahoo.com or kx3any@gmail.com
