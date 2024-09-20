@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Anna
 - 👀 I’m still interested in L1 and L2 solutions
 - 🌱 I’m currently learning how to raise and educate kids well
-- 💞️ I’m looking to collaborate on telegram miniaps
+- 💞️ I’m looking to collaborate on telegram minidaps
 - 📫 How to reach me x3any@yahoo.com or kx3any@gmail.com
 
 <!---
