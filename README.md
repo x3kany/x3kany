@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Anna
+- 👋 Hi, I’m anne Anna
 - 👀 I’m still interested in L1 and L2 solutions
 - 🌱 I’m currently learning how to raise and educate kids well
 - 💞️ I’m looking to collaborate on telegram minidaps
