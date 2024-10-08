@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Anna
-- 👀 I’m still would like to go to Chinese restaurant or to steak house or to seafood restaurant to eat dosen of oysters
+- 👀 I’m still would like to go to Chinese restaurant or to steak house or to seafood restaurant to eat dozen of oysters
 - 🌱 I’m currently learning how to raise and educate kids well
 - 💞️ I’m looking to collaborate on telegram miniaps
 - 📫 How to reach me x3any@yahoo.com or kx3any@gmail.com
