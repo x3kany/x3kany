@@ -1,6 +1,6 @@
 - 👋 Hi, I’m anne Anna
 - 👀 I’m still Dre and would like to go to Chinese restaurant or to steak house or to seafood restaurant to eat some devil's dozen of oysters
-- 🌱 I’m currently learning how to raise and educate kids well and take care of them
+- 🌱 I’m currently learning how to raise and educate kids well and take care of them and their health
 - 💞️ I’m looking to collaborate on automation processes
 - 📫 How to reach me x3any@yahoo.com or kx3any@gmail.com
 
