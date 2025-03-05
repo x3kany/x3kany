@@ -1,6 +1,6 @@
 - 👋 Hi, I’m anne Anna
 - 🌱 Saint P: I would like to go to steak house or to seafood restaurant to eat some devil's dozen of oysters or back to Chinese restaurant to eat some Peking pork or Peking duck much better.
-- 🌱 MSK: I'd like to go some restaurant in the Moskow-city business center Federation tower, with a high stage panaranic city view.
+- 🌱 MSK: I'd like to go some restaurant in the Moskow-city business center Federation tower, with a high stage panaranic city view or to any steak house "The Bull" restaurant chain.
 - 💞️ I like to get some royal thai massage in the Royal Thai SPA.
 - 👀 I’m still Dre.
 - 🌱 I’m currently learning how to raise and educate kids well and take care of them and their health 
